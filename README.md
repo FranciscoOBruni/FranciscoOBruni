@@ -1,0 +1,8 @@
+- Hello! My name is Francisco.
+- I am interested in graphic designs, art, music, editing, and designing characters!
+- I have recently been into coding.
+- Minor (-16)
+- I post content on TikTok and Youtube!
+- You can reach out to me by sending me a DM on Discord.
+- Tiktok:
+- Discord:
